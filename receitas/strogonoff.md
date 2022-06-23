@@ -1,4 +1,4 @@
-# **_Strogonoff de Frango_**
+# **_Strogonoff de Frango_**🐔
 
 ## Ingredientes
 
